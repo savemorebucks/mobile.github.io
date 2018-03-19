@@ -43,9 +43,10 @@ Wifi and LAN Network setup
 Software installation
 Virus and Malware issues
 
-### [Read more](
+### [Read more](https://savemorebucks.github.io/mobile.github.io/)
 ### Support or Contact
 
+Thank You.
 Having trouble with our web and mobile app and products? 
 Email to savemorebucks88 @ gmail . com
-
+As much as you do, we at savemorebucks88 hate SPAM, if you wish not to receive email promotion from us kindly reply to us with Subject "UNSUBSCRIBE". 
