@@ -1,37 +1,48 @@
-## Welcome to GitHub Pages
+## SAVE MORE $$BUCKS$$
+Updated 20/03/2018
 
-You can use the [editor on GitHub](https://github.com/savemorebucks/mobile.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+### COST SAVING AFFORDABLE
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Refurbished Tower Desktop
+(Pentium 4, 80GB to 160GB HDD, 1GB RAM, WXP)
+optional choice of
+14" Monitor 
+or 
+CRT Monitor
+Suitable for school use or general office use.
 
-### Markdown
+### PROMOTION 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Acer Veriton M6650G Micro Tower Desktop PC (i7-6700, 8GB, 1TB, Intel, W7P / W10P)
 
-```markdown
-Syntax highlighted code block
+Lenovo IdeaCentre 310S Desktop PC (INTEL PENTIUM J4205, 4GB, 500GB, Intel, W10H)
 
-# Header 1
-## Header 2
-### Header 3
+Lenovo V520 Tower Desktop PC (i3-7100, 4GB, 1TB, Intel, W10P)
 
-- Bulleted
-- List
+Acer Veriton M6650G  Micro Tower Desktop PC (i5-6500, 4GB, 1TB, Intel, W7P / W10P)
 
-1. Numbered
-2. List
+Lenovo M710 Desktop PC (i5-7400, 4GB, 1TB, Intergrated, W10P)
 
-**Bold** and _Italic_ and `Code` text
+Lenovo M710 Desktop PC (i3-7100, 4GB, 1TB, Intergrated, W10P)
 
-[Link](url) and ![Image](src)
-```
+Lenovo V520 Tower Desktop PC (G4560, 4GB, 1TB, Intergrated, W10P)
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+### Web and Mobile Application
 
-### Jekyll Themes
+Website and Mobile App Media Gamification and media streaming.
+Cloud Business tools and softwares.(Accounting/Logistics etc.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/savemorebucks/mobile.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+### Other Services
+Repair
+Server relocation and setup
+PC and Laptop Upgrade
+Windows Error
+LAN Network issues
+Wifi and LAN Network setup
+Software installation
+Virus and Malware issues
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Having trouble with our web and mobile app and products? 
+Email to savemorebucks88 @ gmail . com
