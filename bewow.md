@@ -10,7 +10,7 @@ In 2009 a guy by the name of Satoshi Nakamoto had found a phone with a beautiful
 
 As we now might have realized what Bitcoin is, millions of others still thinks its a hoax or a scam. Let us think for a second. It could not be millions of others from our community found it as a useful idea of having easeness in their developed applications to be used by millions of others in transactions or trades which already well known as fast and speedy without having to worry to dig into our pockets for a spare change or that cash that we always need in our daily living. So, from here people from around the world has adapted the usefullness of having an or many applications that has cryptocurrency technology in whatever they're doing. Lets us identify what Bitcoin and other cryptocurrencies had been used for in the next chapter below.
 ### GAS
-At some countries, credit cards and cash has been used widely in this kind of transactions at the gas stations. Now we have Bitcoin to thank to, as Bitcoin has been accepted as another payment solution to those traditional tool that we call money by gas station owners. In some countries, petrol pump station has also opened to accepting Bitcoin.
+At some countries, credit cards and cash has been used widely in this kind of transactions at the gas stations. Now we have Bitcoin to thank to, as Bitcoin has been accepted as another payment solution to those traditional tool that we call money by gas station owners. In some countries, petrol pump station has also opened up to accepting Bitcoin as a payment option from their customers.
 Ethereum (another cryptocurrency) developers, have made it possible to get the ethereum coding into the application of a gas station in Germany.
 
 ### GROCERIES AND CAFES 
