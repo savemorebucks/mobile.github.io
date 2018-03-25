@@ -46,7 +46,7 @@ Virus and Malware issues
 
 ### [Read more](https://savemorebucks.github.io/mobile.github.io/)
 ### Support or Contact
-+6010-888 5798
+SAVEMOREBUCKS88
 Thank You.
 Having trouble with our web and mobile app and products? 
 Email to savemorebucks88 @ gmail . com
