@@ -4,7 +4,7 @@
 Tokens and cryptocurrency are developed by the tech community for easeness of transactions in the future amd we are all already in the future! 
 
 ### HOW DOES IT HAPPEN?
-In 2009 a guy by the name of Satoshu Nakamoto has found a phone with a beautiful coding that we know as algorithm. He see it as a life saver for the community and he published it. The published article was sent to millions of people around the world so it can be analyzed how beautiful it was. Some found it a nuisance and some found it as a god sent wisdom. So they further develop the code to become what we call now as Bitcoin!
+In 2009 a guy by the name of Satoshi Nakamoto had found a phone with a beautiful coding in it that we know as an algorithm. He see it as a life saver for the community and he published it. The published article was sent to millions of people around the world so it can be analyzed how beautiful it was. Some found it a nuisance and some found it as a god sent wisdom. So they further develop the code to become what we call now as Bitcoin!
 
 ### Bitcoin and Cryptocurrencies
 
