@@ -1,8 +1,8 @@
-## ●[MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [LATEST TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow/)●
+## ●[MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow/)●
 ##  WE SUPPLY: 
 ### ● SELL NEW AND REFURBISHED SERVER, DESKTOP, LAPTOP.
 ### ● SELL SERVER RACK, HDD RAID CASING, ROUTERS, WIFI EXTENDER, COMPUTER PERIPHERALS.
-### ● IBM/DELL/ACER/LENOVO/SEAGATE/MICROSOFT/AVIRA/SAMSUNG/INTEL/GFI AND MANY MORE.
+### ● IBM/DELL/ACER/LENOVO SEAGATE/MICROSOFT AVIRA/SAMSUNG/INTEL GFI AND MANY MORE.
 
 ##  OTHER SERVICES: 
 ### ● COMPUTER AND SERVER DOWNTIME, INTERNET DOWNTIME.
