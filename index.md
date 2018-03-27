@@ -1,4 +1,4 @@
-## ● [MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow) 
+## ● [MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow) ●
 
 ## SAVE MORE $$BUCKS$$ LATEST
 Updated list on 20/03/2018
@@ -50,7 +50,7 @@ Virus and Malware issues
 Thank You.
 Having trouble with our web and mobile app and products? 
 Email to savemorebucks88 @ gmail . com 
-## ● [MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow) 
+## ● [MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [TECH NEWS](https://savemorebucks.github.io/mobile.github.io/bewow) ●
 
 # IMPORTANT 
 About SPAM, as much as you do, we at savemorebucks88 hate SPAM, if you wish not to receive email promotion from us kindly reply to us with Subject "UNSUBSCRIBE". 
