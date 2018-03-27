@@ -1,5 +1,5 @@
 <img src= "https://github.com/savemorebucks/mobile.github.io/blob/master/Screenshot_20180320-064023.jpg">
-## ●[MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [LATEST TECH NRWS](https://savemorebucks.github.io/mobile.github.io/bewow/)●
+## ● [MAIN](https://savemorebucks.github.io/mobile.github.io/) ● [SERVICES](https://savemorebucks.github.io/mobile.github.io/services) ● [LATEST TECH NRWS](https://savemorebucks.github.io/mobile.github.io/bewow/) ●
 ## USE OF TOKENS AND CRYPTOCURRENCY
 Tokens and cryptocurrency are developed by the tech community for easeness of transactions in the future and we are all already in the future! 
 
