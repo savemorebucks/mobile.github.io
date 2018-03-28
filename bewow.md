@@ -20,7 +20,7 @@
 ## Indeed if we see it as money, these cryptocutrencies will still be in a value of dollars and cents. But a digital one! It is a way of keeping value of money in the trusted Bitcoin wallets or any other cryptocurrency or digital tokens' wallet to be exchanged with other kind of services such as a laundrymat or parking ticket machine next month. This idea might be realized if we do think of the easeness of transactions in hand by not carrying thousands of small change in the bag. Or maybe owing the banks for small change by using credit cards just because we forgot to bring it or the ATM machine was out of reach? Which is a better consensus?
 # How to get Bitcoin or other type of crypto?
 # Exchange
-## In order to change Bitcoin into other crypto try # [CHANGELLY](https://savemorebucks.github.io/mobile.github.io/changelly) you can see there are many cryptos out there and its growing fast.
+## In order to change Bitcoin into other crypto try # [CHANGELLY](https://changelly.com/?ref_id=fd0ac9887bbc) you can see there are many cryptos out there and its growing fast.
 # Mining
 # Earn 
 # Buy 
