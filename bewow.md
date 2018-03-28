@@ -18,4 +18,10 @@
 ## Try use the search engine, we can see that Bitcoin and other cryptocurrencies have been used worldwide for many other daily living purpose and this couldn't be done if tech developers and cryptocurrency enthusiasts has not made possible to help in developing more applications that can be accessed via mobile phones and machines such as the ATM machine.
 # PRICE VS MONEY
 ## Indeed if we see it as money, these cryptocutrencies will still be in a value of dollars and cents. But a digital one! It is a way of keeping value of money in the trusted Bitcoin wallets or any other cryptocurrency or digital tokens' wallet to be exchanged with other kind of services such as a laundrymat or parking ticket machine next month. This idea might be realized if we do think of the easeness of transactions in hand by not carrying thousands of small change in the bag. Or maybe owing the banks for small change by using credit cards just because we forgot to bring it or the ATM machine was out of reach? Which is a better consensus?
-## [BITCOIN EXCHANGR](changelly)
+# How to get Bitcoin or other type of crypto?
+# Exchange
+## In order to change Bitcoin into other crypto try # [CHANGELLY](https://savemorebucks.github.io/mobile.github.io/changelly) you can see there are many cryptos out there and its growing fast.
+# Mining
+# Earn 
+# Buy 
+
