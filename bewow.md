@@ -16,12 +16,30 @@
 # GROCERIES AND CAFES 
 ## If we always travel, we can also see Bitcoin signs sticked to the glass door of any restaurant, cafe or grocery store. This also include many other cryptocurrency such as Litecoin and Doge also has been used but not as widely as Bitcoin. We know that in the near future, Litecoin and Doge as such will be used at many other merchants and stores.
 ## Try use the search engine, we can see that Bitcoin and other cryptocurrencies have been used worldwide for many other daily living purpose and this couldn't be done if tech developers and cryptocurrency enthusiasts has not made possible to help in developing more applications that can be accessed via mobile phones and machines such as the ATM machine.
+
 # PRICE VS MONEY
-## Indeed if we see it as money, these cryptocutrencies will still be in a value of dollars and cents. But a digital one! It is a way of keeping value of money in the trusted Bitcoin wallets or any other cryptocurrency or digital tokens' wallet to be exchanged with other kind of services such as a laundrymat or parking ticket machine next month. This idea might be realized if we do think of the easeness of transactions in hand by not carrying thousands of small change in the bag. Or maybe owing the banks for small change by using credit cards just because we forgot to bring it or the ATM machine was out of reach? Which is a better consensus?
+## Indeed if we see it as money or echange of aervice like a barter system, These cryptocutrencies will still be in a value acceptable to the holder. But a digital one! It is a way of keeping value of money in the trusted Bitcoin wallets or any other cryptocurrency or digital tokens' wallet to be exchanged with other kind of services such as a laundrymat or parking ticket machine next month. This idea might be realized if we do think of the easeness of transactions in hand by not carrying thousands of small change in the bag. Or maybe owing the banks for small change by using credit cards just because we forgot to bring it or the ATM machine was out of reach? Which is a better consensus?
+
 # How to get Bitcoin or other type of crypto?
+## Bitcoin is an asset traded as XBT or BTC. You can find one such as examples given below.
+
 # Exchange
 ## In order to change Bitcoin into other crypto try # [CHANGELLY](https://changelly.com/?ref_id=fd0ac9887bbc) you can see there are many cryptos out there and its growing fast.
+
 # Mining
+## Free sites are everywhere on the internet such as this [CLOUD MINING](https://dogeminer.cc/index.php?boss=33265)
+
+
 # Earn 
-# Buy 
+## Some companies do give Bitcoins in exchange for their workers job done. You can try do yourself by asking for Bitcoin for the work you have completed, maybe hourly rated.
+
+# Buy
+## In most coutries Bitcoin ATM are everywhere. You can purchase Bitcoin from the ATM itself provided that you have to download a Bitcoin wallet such as Shakepay, Xapo and so on from your smartphone.
+
+
+
+# DISCLAIMER 
+## The article contents were extracted from the search engine, if you would like to know more about Bitcoin and Cryptocurrency please do your research. Owner and the author of these pages will not be of any liability of losses through your purchase or mining of Bitcoin. Owner and the Author of this page created this content as for educational purposes only on what is happening in the technology world besides the electronic gadgets, space or self driving cars. There is no optiom of buying or selling Bitcoim whatsoever in these pages, though acceptence of Bitcoin on these pages is for those of you who don't have any other means of payment optiom. So Bitcoin is accepted here in exchange for the products or services rendered.
+
+
 
