@@ -27,7 +27,7 @@
 ## In order to change Bitcoin into other crypto try # [CHANGELLY](https://changelly.com/?ref_id=fd0ac9887bbc) you can see there are many cryptos out there and its growing fast.
 
 # Mining
-## Free sites are everywhere on the internet such as this [CLOUD MINING](https://dogeminer.cc/index.php?boss=33265)
+## Free sites are everywhere on the internet such as this [CLOUD MINING](https://dogeminer.cc/index.php?boss=33265) and [MACHINE MINING](https://pandapool.io/987/176147)
 
 
 # Earn 
@@ -36,10 +36,11 @@
 # Buy
 ## In most coutries Bitcoin ATM are everywhere. You can purchase Bitcoin from the ATM itself provided that you have to download a Bitcoin wallet such as Shakepay, Xapo and so on from your smartphone.
 
-
+# BITCOIN IS FUN! 
+## Why? It's a passion, a hobby and do what you love. Is Bitcoin Money? No Idea, Don't care!
 
 # DISCLAIMER 
-## The article contents were extracted from the search engine, if you would like to know more about Bitcoin and Cryptocurrency please do your research. Owner and the author of these pages will not be of any liability of losses through your purchase or mining of Bitcoin. Owner and the Author of this page created this content as for educational purposes only on what is happening in the technology world besides the electronic gadgets, space or self driving cars. There is no optiom of buying or selling Bitcoim whatsoever in these pages, though acceptence of Bitcoin on these pages is for those of you who don't have any other means of payment optiom. So Bitcoin is accepted here in exchange for the products or services rendered.
+## The article contents were extracted from the search engine, if you would like to know more about Bitcoin and Cryptocurrency please do your research. Owner and the author of these pages will not be of any liability of losses through your purchase or mining of Bitcoin. Owner and the Author of this page created this content as for educational purposes only on what is happening in the technology world besides the electronic gadgets, space or self driving cars. There is no optiom of buying or selling Bitcoim whatsoever in these pages, though acceptence of Bitcoin on these pages is for those of you who don't have any other means of payment option. So Bitcoin is accepted here in exchange for the products or services rendered.
 
 
 
