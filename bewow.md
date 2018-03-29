@@ -27,7 +27,7 @@
 ## In order to change Bitcoin into other crypto try # [CHANGELLY](https://changelly.com/?ref_id=fd0ac9887bbc) you can see there are many cryptos out there and its growing fast.
 
 # Mining
-## Free sites are everywhere on the internet such as this [CLOUD MINING](https://dogeminer.cc/index.php?boss=33265) and [MACHINE MINING](https://pandapool.io/987/176147)
+## Free sites are everywhere on the internet such as this [CLOUD MINING](https://dogeminer.cc/index.php?boss=33265) and [MACHINE MINING](https://pandapool.io/r/987/176147)
 
 
 # Earn 
